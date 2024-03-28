@@ -24,7 +24,7 @@ This repository is managed by Anshuman Pattnaik, and permissions are granted for
 ANALYSIS:
 
 ![download (1)](![download (2)](https://github.com/ANSHPG/Exploring-IPL-Rivalries-An-Analysis-of-Matches-from-2008-to-2022/assets/132222062/5fbf685f-adad-4bd6-a59f-4e52ece7c5d5)
-https://github.com/ANSHPG/Exploring-IPL-Rivalries-An-Analysis-of-Matches-from-2008-to-2022/assets/132222062/55a04c44-6eb5-400c-b44b-c588877532c6)
+![download (2)](https://github.com/ANSHPG/Exploring-IPL-Rivalries-An-Analysis-of-Matches-from-2008-to-2022/assets/132222062/774f18d0-2b6f-4a73-9b68-5aa7314058c2)
 ![download (3)](https://github.com/ANSHPG/Exploring-IPL-Rivalries-An-Analysis-of-Matches-from-2008-to-2022/assets/132222062/10a9162c-2dd1-4382-871b-e74cc606d090)
 ![download (4)](https://github.com/ANSHPG/Exploring-IPL-Rivalries-An-Analysis-of-Matches-from-2008-to-2022/assets/132222062/970e3f67-598a-4852-ae63-3e21e8d66c6a)
 ![download (5)](https://github.com/ANSHPG/Exploring-IPL-Rivalries-An-Analysis-of-Matches-from-2008-to-2022/assets/132222062/609d45b6-9bda-4986-aba4-72d34ca5606a)
